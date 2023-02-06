@@ -19,3 +19,12 @@
 ![AI前线](https://article-images.zsxq.com/FgQVecjN_gKZ6ufrsdumzVrKttZM)
 
 公众号 `AI前线` -  [AI一周资讯](https://mp.weixin.qq.com/s/7yJ2WQ71TKg5KV3T3O0xPg)
+
+
+
+
+持续更新
+
+
+## 更多内驱成长内容
+![WechatIMG202](https://user-images.githubusercontent.com/66234756/216879619-d321b4e5-0e9b-4e02-b259-cc0ca7edd767.png)
