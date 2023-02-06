@@ -27,4 +27,5 @@
 
 
 ## 更多内驱成长内容
-![WechatIMG202](https://user-images.githubusercontent.com/66234756/216879619-d321b4e5-0e9b-4e02-b259-cc0ca7edd767.png)
+
+![WechatIMG202](https://user-images.githubusercontent.com/66234756/216879875-a48e184a-f808-4cf6-bb7c-936073e6a78b.png)
